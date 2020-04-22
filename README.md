@@ -1,4 +1,4 @@
-ㅤㅤㅤㅤㅤㅤㅤㅤ|  [首页](https://wjq1234567.github.io/MaoguoTeam/)  |  [团队题目](https://wjq1234567.github.io/MaoguoTeam/)  |  [团队比赛](https://wjq1234567.github.io/MaoguoTeam/)  |  [官方通知](https://wjq1234567.github.io/MaoguoTeam/)  | [陶片放逐](https://wjq1234567.github.io/MaoguoTeam/)  |ㅤㅤㅤㅤㅤㅤ
+ㅤㅤㅤㅤㅤ|  [首页](https://wjq1234567.github.io/MaoguoTeam/)  |  [团队题目](https://wjq1234567.github.io/MaoguoTeam/)  |  [团队比赛](https://wjq1234567.github.io/MaoguoTeam/)  |  [官方通知](https://wjq1234567.github.io/MaoguoTeam/)  | [陶片放逐](https://wjq1234567.github.io/MaoguoTeam/)  |  [存档试玩](https://wjq1234567.github.io/MaoguoTeam/)  |ㅤㅤㅤㅤ
 
 ## 关于此网站：
 
